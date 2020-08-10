@@ -25,3 +25,6 @@ All skins i've used at some point
 
 ## [**osu! Default Skin Improved**](https://www.mediafire.com/file/skpip57mu3y1doi/osu%21_Default_Skin_Improved.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2020-03/1583321376_screenshot8139.jpg)
+
+## [**404 SkinNotFound v2**](http://www.mediafire.com/file/xntqi7ms52y2e61/404_SkinNotFound_v2.osk/file)
+![](https://skins.osuck.net/uploads/posts/2018-11/1541395297_screenshot993.jpg)
