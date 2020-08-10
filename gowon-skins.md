@@ -7,3 +7,21 @@ All skins i've used at some point
 
 ## [**WhiteCat (1.0) 『DT』**](http://www.mediafire.com/file/nqmdulhi5pln706/-_%2523_WhiteCat_%25281.0%2529_%25E3%2580%258EDT%25E3%2580%258F_%2523-.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2019-11/1573897169_4.jpg)
+
+## [**Aristia(Edit)**](https://www.mediafire.com/file/wxh5t1xfa3kpncd/Aristia%28Edit%29.osk/file)
+![](https://skins.osuck.net/uploads/posts/2019-02/1549355517_3.jpg)
+
+## [**- YUGEN -**](https://www.mediafire.com/file/r3oivckreh8nrqn/-_YUGEN_-.osk/file)
+![](https://skins.osuck.net/uploads/posts/2018-09/1538054483_screenshot258.jpg)
+
+## [**-GN 2017-09-16**](http://www.mediafire.com/file/nfm6r0c04f8und5/-GN_2017-09-16.osk/file)
+![](https://skins.osuck.net/uploads/posts/2018-10/1538730109_screenshot492.jpg)
+
+## [**- #-K- Megumi feat.Hoaq --**](https://www.mediafire.com/file/r6ep8yy9ytyk40t/-_%2523-K-_Megumi_feat.Hoaq_--.osk/file#-K-+Megumi+feat.Hoaq+--.osk/file)
+![](https://skins.osuck.net/uploads/posts/2020-08/1596631540_screenshot9261.jpg)
+
+## [**mathi ensalada v1.5**](http://www.mediafire.com/file/dasthizozmbr3dg/mathi_ensalada_v1.5_%2528Yellow_cursor%2529.osk/file)
+![](https://skins.osuck.net/uploads/posts/2019-03/1553936590_screenshot3523.jpg)
+
+## [**osu! Default Skin Improved**](https://www.mediafire.com/file/skpip57mu3y1doi/osu%21_Default_Skin_Improved.osk/file)
+![](https://skins.osuck.net/uploads/posts/2020-03/1583321376_screenshot8139.jpg)
