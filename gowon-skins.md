@@ -17,11 +17,17 @@ All skins i've used at some point
 ## [**- YUGEN -**](https://www.mediafire.com/file/r3oivckreh8nrqn/-_YUGEN_-.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2018-09/1538054483_screenshot258.jpg)
 
+## [**idke+1.1**](http://www.mediafire.com/file/iquuacals63m6eq/idke+1.1.osk/file)
+![](https://skins.osuck.net/uploads/posts/2018-09/1537858215_bvputcn.jpg)
+
 ## [**-GN 2017-09-16**](http://www.mediafire.com/file/nfm6r0c04f8und5/-GN_2017-09-16.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2018-10/1538730109_screenshot492.jpg)
 
 ## [**- #-K- Megumi feat.Hoaq --**](https://www.mediafire.com/file/r6ep8yy9ytyk40t/-_%2523-K-_Megumi_feat.Hoaq_--.osk/file#-K-+Megumi+feat.Hoaq+--.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2020-08/1596631540_screenshot9261.jpg)
+
+## [**- + Anzurim (One ver)**](https://www.mediafire.com/file/7urrt06pkni71oz/-_+_Anzurim_%28One_ver%29.osk/file)
+![](https://skins.osuck.net/uploads/posts/2020-01/1578050944_screenshot7624.jpg)
 
 ## [**mathi ensalada v1.5**](http://www.mediafire.com/file/dasthizozmbr3dg/mathi_ensalada_v1.5_%2528Yellow_cursor%2529.osk/file)
 ![](https://skins.osuck.net/uploads/posts/2019-03/1553936590_screenshot3523.jpg)
