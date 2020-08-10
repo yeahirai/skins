@@ -1,5 +1,5 @@
 # **Gowon skin list**
  
-## [**Planets Skin**](https://archive.btmc.live/-%20JesusOmega%20%7BNM%7D%20%E3%80%8EPlanets%E3%80%8F%20-.osk)
-![](https://archive.btmc.live/images/planets-game.png)
+## [**Planets Skin**](http://www.mediafire.com/file/6250ar1z1jq0aes/-_%2523_WhiteCat_%25281.0%2529_%25E3%2580%258ECK%25E3%2580%258F_%2523-.osk/file)
+![](https://skins.osuck.net/uploads/posts/2019-11/1573897221_3.jpg)
 
