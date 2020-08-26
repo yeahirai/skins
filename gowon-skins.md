@@ -1,8 +1,11 @@
 # **Gowon skin list**
 
 All skins i've used at some point 
+
+ ## [**Komori - Pengu_Lian(PwV)**](http://www.mediafire.com/file/pr8n1s15j37whi8/Komori_-_Pengu_Lian%2528PwV%2529.osk/file)  current
+![](https://skins.osuck.net/uploads/posts/2019-08/1565775665_screenshot6289.jpg)
  
- ## [**-「rem」- +gowon**](http://www.mediafire.com/file/vjzvtjepyt39ng9/-「rem」-++gowon.osk/file) current
+ ## [**-「rem」- +gowon**](http://www.mediafire.com/file/vjzvtjepyt39ng9/-「rem」-++gowon.osk/file) 
 ![](https://i.imgur.com/20xhXi6.jpg)
  
  ## [**- MeguminAzerite -**](http://www.mediafire.com/file/6qj9w7t17zr54jj/-_MeguminAzerite__-.osk/file)
