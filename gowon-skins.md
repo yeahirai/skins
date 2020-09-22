@@ -2,8 +2,8 @@
 
 All skins i've used at some point 
 
- ## [**- # reowoTuna v1.1 『Selyu』 # -**](http://www.mediafire.com/file/10yv0iwzd9vn7zh/-_%2523_re%253BowoTuna_v1.1_%25E3%2580%258ESelyu%25E3%2580%258F_%2523_-.osk/file)  current
-![](https://skins.osuck.net/uploads/posts/2020-08/1596468449_screenshot9247.jpg)
+ ## [**- # reowoTuna v1.1 『Selyu』 #+gowon**](http://www.mediafire.com/file/e2tn4mipqqnrtbz/-++++++++#+re;owoTuna+v1.1+『Selyu』+#++gowon.osk/file)  current
+![](https://i.imgur.com/Nk45Gj6.jpg)
 
  ## [**-        # reowoTuna v1.1 『Mathi』 # +gowon**](http://www.mediafire.com/file/jpn1tc8g4bvn6m4/-++++++++#+re;owoTuna+v1.1+『Mathi』+#++gowon.osk/file)  
 ![](https://i.imgur.com/Thyznok.jpg)
