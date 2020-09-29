@@ -2,7 +2,10 @@
 
 All skins i've used at some point 
 
- ## [**- # reowoTuna v1.1 『Selyu』 #+gowon**](http://www.mediafire.com/file/e2tn4mipqqnrtbz/-++++++++#+re;owoTuna+v1.1+『Selyu』+#++gowon.osk/file)  current
+ ## [**-        # re;owoTuna v1.1 『Emilia』 # +gowon**](http://www.mediafire.com/file/0bjiyo2r927y0w3/-++++++++#+re;owoTuna+v1.1+『Emilia』+#++gowon.osk/file)  
+![](https://i.imgur.com/hyDe6ZK.jpg)
+
+ ## [**- # reowoTuna v1.1 『Selyu』 #+gowon**](http://www.mediafire.com/file/e2tn4mipqqnrtbz/-++++++++#+re;owoTuna+v1.1+『Selyu』+#++gowon.osk/file)  
 ![](https://i.imgur.com/Nk45Gj6.jpg)
 
  ## [**-        # reowoTuna v1.1 『Mathi』 # +gowon**](http://www.mediafire.com/file/jpn1tc8g4bvn6m4/-++++++++#+re;owoTuna+v1.1+『Mathi』+#++gowon.osk/file)  
