@@ -1,8 +1,8 @@
 # **Gowon skin list**
 
 All skins i've used at some point 
- ## [**『Selyu』 # +gowon**](http://www.mediafire.com/file/gmy0qq8rqeqatqw/%25E3%2580%258ESelyu%25E3%2580%258F_%2523_%252Bgowon.osk/file)  
-![](https://i.imgur.com/ut44SWu.png) MAIN
+ ## [**『Selyu』 # +gowon**](http://www.mediafire.com/file/gmy0qq8rqeqatqw/%25E3%2580%258ESelyu%25E3%2580%258F_%2523_%252Bgowon.osk/file)  MAIN
+![](https://i.imgur.com/ut44SWu.png) 
 
  ## [**-        # reowoTuna v1.1 『Fujiwara』 # +gowon**](http://www.mediafire.com/file/t4nwcgdf23llpm3/-_%2523_re%253BowoTuna_v1.1_%25E3%2580%258EFujiwara%25E3%2580%258F_%2523_%252Bgowon.osk/file)  
 ![](https://i.imgur.com/hYGv2GJ.jpg)
