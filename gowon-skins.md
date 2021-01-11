@@ -3,9 +3,9 @@
 All skins i've used at some point 
 
 
- ## [**- [KSE] kdoge's 白上フブキ　日本語「Shirakami Fubuki」 V3.4.5 +without fubuki**](https://drive.google.com/file/d/12x2Xvz2-5YLfH_x6QC3GZWfpJyU8EMtG/view?usp=sharing) current
+ ## [**- [KSE] kdoge's 白上フブキ　日本語「Shirakami Fubuki」 V3.4.5 +without fubuki**](https://mega.nz/file/9fgQxZSJ#qz3VqgDHJjSzlTWfcKPb5KUzBgx9gGuwiHIfr7hmDiA) current
  [**original with fubuki**](https://www.reddit.com/r/OsuSkins/comments/kpib7f/stdhd_169_only_kdoges_hololive_shirakami_fubuki/)   
-![](https://i.imgur.com/qpQZgv6.png) 
+![](https://i.imgur.com/m4hLE8H.png) 
 
  ## [**-        # reowoTuna v1.1 『Fujiwara』 # +gowon**](http://www.mediafire.com/file/t4nwcgdf23llpm3/-_%2523_re%253BowoTuna_v1.1_%25E3%2580%258EFujiwara%25E3%2580%258F_%2523_%252Bgowon.osk/file)  
 ![](https://i.imgur.com/hYGv2GJ.jpg)
