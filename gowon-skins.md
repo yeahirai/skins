@@ -3,7 +3,7 @@
 All skins i've used at some point 
 
 
- ## [**- [KSE] kdoge's 白上フブキ　日本語「Shirakami Fubuki」 V3.4.5 +without fubuki**](https://mega.nz/file/9fgQxZSJ#qz3VqgDHJjSzlTWfcKPb5KUzBgx9gGuwiHIfr7hmDiA) current
+ ## [**- [KSE] kdoge's 白上フブキ　日本語「Shirakami Fubuki」 V3.4.5 +without fubuki**](https://mega.nz/file/lfwmzLab#Kkbs0j-cdiLdf3WIWsUqTC4TiwTt4CJGa4rPxFEtxd4) current
  [**original with fubuki**](https://www.reddit.com/r/OsuSkins/comments/kpib7f/stdhd_169_only_kdoges_hololive_shirakami_fubuki/)   
 ![](https://i.imgur.com/m4hLE8H.png) 
 
