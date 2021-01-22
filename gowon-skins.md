@@ -4,7 +4,7 @@ All skins i've used at some point
 
 
  ## [**- -   # MaterialGura 『GW』**](https://gowon.s-ul.eu/pCJXSrSK) made (mostly) by me :D
- [**original with fubuki**](https://www.reddit.com/r/OsuSkins/comments/kpib7f/stdhd_169_only_kdoges_hololive_shirakami_fubuki/)   
+ [**dt ver.**](https://gowon.s-ul.eu/tsUUMjG8) | [**original with fubuki**](https://www.reddit.com/r/OsuSkins/comments/kpib7f/stdhd_169_only_kdoges_hololive_shirakami_fubuki/)   
 ![](https://i.imgur.com/sqHyP9d.png) 
 
  ## [**-        # reowoTuna v1.1 『Fujiwara』 # +gowon**](http://www.mediafire.com/file/t4nwcgdf23llpm3/-_%2523_re%253BowoTuna_v1.1_%25E3%2580%258EFujiwara%25E3%2580%258F_%2523_%252Bgowon.osk/file)  
