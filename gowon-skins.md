@@ -3,7 +3,7 @@
 All skins i've used at some point 
 
 
- ## [**- -   # MaterialGura 『GW』**](https://mega.nz/file/RPJSxbaT#FBeu5nYdLNFS6SApUMNjFHPCXT_sXRIZe5C6sZYLVXU) made (mostly) by me :D
+ ## [**- -   # MaterialGura 『GW』**](https://gowon.s-ul.eu/pCJXSrSK) made (mostly) by me :D
  [**original with fubuki**](https://www.reddit.com/r/OsuSkins/comments/kpib7f/stdhd_169_only_kdoges_hololive_shirakami_fubuki/)   
 ![](https://i.imgur.com/sqHyP9d.png) 
 
