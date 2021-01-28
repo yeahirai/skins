@@ -2,6 +2,8 @@
 
 All skins i've used at some point 
 
+## [**-# Ninomae Ina'nis v1.0 #-**](https://gowon.s-ul.eu/lhxK60YC)  edited
+![](https://i.imgur.com/DLs3GhK.png)
 
  ## [**- -   # MaterialGura 『GW』**](https://gowon.s-ul.eu/pCJXSrSK) made (mostly) by me :D
  [**DT ver.**](https://gowon.s-ul.eu/tsUUMjG8) | [**original with fubuki**](https://www.reddit.com/r/OsuSkins/comments/kpib7f/stdhd_169_only_kdoges_hololive_shirakami_fubuki/)   
