@@ -2,7 +2,7 @@
 
 All skins i've used at some point 
 
-## [**- tranquil sublimity -**](https://gowon.s-ul.eu/XeOWeekM) main
+## [**- emilia's sublimity -**](https://gowon.s-ul.eu/XeOWeekM) main
 ![](https://i.imgur.com/ygGc4CA.png)
 
 ## [**-# Ninomae Ina'nis v1.0 #-**](https://gowon.s-ul.eu/lhxK60YC)  edited
