@@ -2,7 +2,10 @@
 
 All skins i've used at some point 
 
-## [**- emilia's sublimity -**](https://gowon.s-ul.eu/XeOWeekM) main
+## [**- # Akai Haato/Haachama (numbers)**](https://app.mediafire.com/v7u83g0zxx8d2)
+![](https://i.imgur.com/RHp8O2q.png)
+
+## [**- emilia's sublimity -**](https://gowon.s-ul.eu/XeOWeekM)
 ![](https://i.imgur.com/ygGc4CA.png)
 
 ## [**-# Ninomae Ina'nis v1.0 #-**](https://gowon.s-ul.eu/lhxK60YC)  edited
