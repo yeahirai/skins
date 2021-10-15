@@ -9,7 +9,7 @@ All skins i've used at some point
 ![](https://i.imgur.com/OjAiNUx.jpeg)
 
 ## [**notMiku 1.0**](https://drive.google.com/file/d/1Wbggpud8DsgwB6uiv-6-MW3sSpCmpJVr/view)
-![](https://skins.osuck.net/uploads/posts/2021-04/1619611994_screenshot10147.jpg)
+![](https://i.imgur.com/EAv1H6n.jpeg)
 
 ## [**BubbleSkin20-10-09 edit**](https://gowon.s-ul.eu/tlCeuzmB)
 ![](https://i.imgur.com/Gnsuzrc.jpeg)
