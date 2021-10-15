@@ -5,7 +5,7 @@ All skins i've used at some point
 ## [**MonkoEdit**](https://drive.google.com/file/d/1m5zptef-Cr5UXtXBdtu0LFrV_Sldb6hr/view)
 ![](https://skins.osuck.net/uploads/posts/2021-03/1615248704_screenshot9666.jpg)
 
-## [**- 『BlooXoo』 -**](https://gowon.s-ul.eu/gXDA0xb3)
+## [**- 『BlooXoo』 -**](https://i.imgur.com/OjAiNUx.jpeg)
 ![](https://gowon.s-ul.eu/gXDA0xb3)
 
 ## [**notMiku 1.0**](https://drive.google.com/file/d/1Wbggpud8DsgwB6uiv-6-MW3sSpCmpJVr/view)
