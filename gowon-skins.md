@@ -2,6 +2,24 @@
 
 All skins i've used at some point 
 
+## [**MonkoEdit**](https://drive.google.com/file/d/1m5zptef-Cr5UXtXBdtu0LFrV_Sldb6hr/view)
+![](https://skins.osuck.net/uploads/posts/2021-03/1615248704_screenshot9666.jpg)
+
+## [**- 『BlooXoo』 -**](https://gowon.s-ul.eu/gXDA0xb3)
+![](https://gowon.s-ul.eu/gXDA0xb3)
+
+## [**notMiku 1.0**](https://drive.google.com/file/d/1Wbggpud8DsgwB6uiv-6-MW3sSpCmpJVr/view)
+![](https://skins.osuck.net/uploads/posts/2021-04/1619611994_screenshot10147.jpg)
+
+## [**BubbleSkin20-10-09 edit**](https://gowon.s-ul.eu/tlCeuzmB)
+![](https://i.imgur.com/Gnsuzrc.jpeg)
+
+## [**dracula edit**](https://gowon.s-ul.eu/KxnyY2Kj)
+![](https://i.imgur.com/z0AWnKg.jpeg)
+
+## [**gowon sublimity**](https://gowon.s-ul.eu/SURSqEon)
+![](https://i.imgur.com/MypopJc.jpeg)
+
 ## [**- # Akai Haato/Haachama (numbers)**](https://app.mediafire.com/v7u83g0zxx8d2)
 ![](https://i.imgur.com/RHp8O2q.png)
 
