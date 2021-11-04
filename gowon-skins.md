@@ -2,6 +2,9 @@
 
 All skins i've used at some point 
 
+## [**DT - 404**](https://gowon.s-ul.eu/cHskwmI8)
+![](https://i.imgur.com/UQ8HSds.png)
+
 ## [**MonkoEdit**](https://drive.google.com/file/d/1m5zptef-Cr5UXtXBdtu0LFrV_Sldb6hr/view)
 ![](https://skins.osuck.net/uploads/posts/2021-03/1615248704_screenshot9666.jpg)
 
