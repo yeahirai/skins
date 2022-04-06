@@ -2,7 +2,7 @@
 
 All skins i've used at some point 
 
-## [**- #-K- 이달의소녀% Ⅺ GoWon +aristia**](https://gowon.s-ul.eu/XLYRoZQx)
+## [**- # gowoTuna  『Mathi』**](https://gowon.s-ul.eu/XLYRoZQx)
 ![](https://media.discordapp.net/attachments/959299528111030282/961129290051751978/screenshot022.png?width=854&height=480)
 
 ## [**- #-K- 이달의소녀% Ⅺ GoWon +aristia**](https://gowon.s-ul.eu/8FR1Cqj5)
