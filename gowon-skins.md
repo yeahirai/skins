@@ -7,7 +7,7 @@ Discord: **gowon#0609**
 # ALL SKINS OF GOWON
 
 # [-         《CK》 Bacon boi 1.0 『blue』](https://drive.google.com/file/d/1MyP_M81O31eInOfeIqJaQjfFRne3-BhL/view?usp=sharing)
-![]([https://i.imgur.com/KITjcfN.png)
+![](https://i.imgur.com/KITjcfN.png)
 # [-        # re;owoTuna v1.1 『Mathi』 # +gowon v2](https://drive.google.com/file/d/1ReCclZLFXe-W0lYF_4PgHT37k-b2lL_5/view?usp=sharing)
 ![](https://i.imgur.com/XV9it4f.png)
 # [-        # reowoTuna v1.1 『Emilia』 # +gowon](https://drive.google.com/file/d/1XH-unrJ7IvqBk1QrVvTM_X3KPyNXuXNa/view?usp=sharing)
