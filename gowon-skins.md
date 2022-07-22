@@ -21,7 +21,7 @@ full skins big folder [here](https://drive.google.com/drive/folders/1nydk6OUpGhj
 # [- # gowoTuna  『Mathi』](https://drive.google.com/file/d/1xUi5FltxotfghNgUraZ27bWH-Oz1Vipv/view?usp=sharing)
 ![](https://i.imgur.com/aIyNM8d.png)
 # [- # notMiku v1.0](https://drive.google.com/file/d/1Z-zDTNzZyNSesOCoPTWWMVz3Lj2LzEeH/view?usp=sharing)
-![]([https://i.imgur.com/1l98gjG.png)
+![](https://i.imgur.com/1l98gjG.png)
 # [- #-K- Megumi feat.Hoaq --](https://drive.google.com/file/d/1gDrGTla7I7v2KjhpWsaz7sNrAZZTgeHg/view?usp=sharing)
 ![](https://i.imgur.com/7pbyXaX.png)
 # [- #-K- 이달의소녀% Ⅺ GoWon +aristia gowon](https://drive.google.com/file/d/15aaLBd4t3IDa_NfEFSLfWgcfwKp2AV38/view?usp=sharing)
