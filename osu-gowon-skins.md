@@ -1,6 +1,6 @@
 # *UPDATED WHEN I REMEMBER*  
 
-full skins big folder [here](https://drive.google.com/drive/folders/1nydk6OUpGhjq8Shqf4EzqHqrRAxcYNOM?usp=sharing)
+full osu skins big compilation folder [here](https://drive.google.com/drive/folders/1nydk6OUpGhjq8Shqf4EzqHqrRAxcYNOM?usp=sharing)
 
 # ALL SKINS I HAVE USED AT SOME POINT
 
