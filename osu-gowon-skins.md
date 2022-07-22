@@ -2,7 +2,7 @@
 
 full skins big folder [here](https://drive.google.com/drive/folders/1nydk6OUpGhjq8Shqf4EzqHqrRAxcYNOM?usp=sharing)
 
-# ALL SKINS OF GOWON
+# ALL SKINS I HAVE USED AT SOME POINT
 
 # [-         《CK》 Bacon boi 1.0 『blue』](https://drive.google.com/file/d/1MyP_M81O31eInOfeIqJaQjfFRne3-BhL/view?usp=sharing)
 ![](https://i.imgur.com/KITjcfN.png)
