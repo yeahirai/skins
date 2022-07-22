@@ -1,97 +1,10 @@
-# **gowon skin list**
+# *UPDATED WHEN I REMEMBER*  
 
-All skins i've used at some point 
+Discord: **gowon#0609**
 
-## [**- # gowoTuna  『Mathi』**](https://gowon.s-ul.eu/XLYRoZQx)
-![](https://media.discordapp.net/attachments/959299528111030282/961129290051751978/screenshot022.png?width=854&height=480)
+# **DM me if any links are broken**
 
-## [**- #-K- 이달의소녀% Ⅺ GoWon +aristia**](https://gowon.s-ul.eu/8FR1Cqj5)
-![](https://media.discordapp.net/attachments/895767126151946242/911262621922103366/screenshot006.png?width=854&height=480)
+# ALL SKINS OF GOWON
 
-## [**DT - 404**](https://gowon.s-ul.eu/cHskwmI8)
-![](https://i.imgur.com/UQ8HSds.png)
-
-## [**MonkoEdit**](https://drive.google.com/file/d/1m5zptef-Cr5UXtXBdtu0LFrV_Sldb6hr/view)
-![](https://skins.osuck.net/uploads/posts/2021-03/1615248704_screenshot9666.jpg)
-
-## [**- 『BlooXoo』 -**](https://gowon.s-ul.eu/gXDA0xb3)
-![](https://i.imgur.com/OjAiNUx.jpeg)
-
-## [**notMiku 1.0**](https://drive.google.com/file/d/1Wbggpud8DsgwB6uiv-6-MW3sSpCmpJVr/view)
-![](https://i.imgur.com/EAv1H6n.jpeg)
-
-## [**BubbleSkin20-10-09 edit**](https://gowon.s-ul.eu/tlCeuzmB)
-![](https://i.imgur.com/Gnsuzrc.jpeg)
-
-## [**dracula edit**](https://gowon.s-ul.eu/KxnyY2Kj)
-![](https://i.imgur.com/z0AWnKg.jpeg)
-
-## [**gowon sublimity**](https://gowon.s-ul.eu/SURSqEon)
-![](https://i.imgur.com/MypopJc.jpeg)
-
-## [**- # Akai Haato/Haachama (numbers)**](https://app.mediafire.com/v7u83g0zxx8d2)
-![](https://i.imgur.com/RHp8O2q.png)
-
-## [**- emilia's sublimity -**](https://gowon.s-ul.eu/XeOWeekM)
-![](https://i.imgur.com/ygGc4CA.png)
-
-## [**-# Ninomae Ina'nis v1.0 #-**](https://gowon.s-ul.eu/lhxK60YC)  edited
-![](https://i.imgur.com/DLs3GhK.png)
-
- ## [**- -   # MaterialGura 『GW』**](https://gowon.s-ul.eu/pCJXSrSK) made (mostly) by me :D
- [**DT ver.**](https://gowon.s-ul.eu/tsUUMjG8) | [**original with fubuki**](https://www.reddit.com/r/OsuSkins/comments/kpib7f/stdhd_169_only_kdoges_hololive_shirakami_fubuki/)   
-![](https://i.imgur.com/sqHyP9d.png) 
-
- ## [**-        # reowoTuna v1.1 『Fujiwara』 # +gowon**](http://www.mediafire.com/file/t4nwcgdf23llpm3/-_%2523_re%253BowoTuna_v1.1_%25E3%2580%258EFujiwara%25E3%2580%258F_%2523_%252Bgowon.osk/file)  
-![](https://i.imgur.com/hYGv2GJ.jpg)
-
- ## [**-        # reowoTuna v1.1 『Emilia』 # +gowon**](http://www.mediafire.com/file/0bjiyo2r927y0w3/-++++++++#+re;owoTuna+v1.1+『Emilia』+#++gowon.osk/file)  
-![](https://i.imgur.com/hyDe6ZK.jpg)
-
- ## [**-        # reowoTuna v1.1 『Mathi』 # +gowon**](http://www.mediafire.com/file/jpn1tc8g4bvn6m4/-++++++++#+re;owoTuna+v1.1+『Mathi』+#++gowon.osk/file) || [**V2**](https://gowon.s-ul.eu/XWJlo7to)  
-![](https://i.imgur.com/Thyznok.jpg)
-
- ## [**Komori - Pengu_Lian(PwV)**](http://www.mediafire.com/file/pr8n1s15j37whi8/Komori_-_Pengu_Lian%2528PwV%2529.osk/file)  
-![](https://skins.osuck.net/uploads/posts/2019-08/1565775665_screenshot6289.jpg)
-
-# [Axarious Flat ADHD 80%](https://axa.s-ul.eu/NddCdfXW)
-![](https://i.imgur.com/Iv9l1nQ.jpg)
- 
- ## [**-「rem」- +gowon**](http://www.mediafire.com/file/vjzvtjepyt39ng9/-「rem」-++gowon.osk/file) 
-![](https://i.imgur.com/20xhXi6.jpg)
- 
- ## [**- MeguminAzerite -**](http://www.mediafire.com/file/6qj9w7t17zr54jj/-_MeguminAzerite__-.osk/file)
-![](https://skins.osuck.net/uploads/posts/2018-12/1545721848_screenshot1642.jpg)
-
-## [**WhiteCat (1.0) 『CK』**](http://www.mediafire.com/file/6250ar1z1jq0aes/-_%2523_WhiteCat_%25281.0%2529_%25E3%2580%258ECK%25E3%2580%258F_%2523-.osk/file)
-![](https://skins.osuck.net/uploads/posts/2019-11/1573897221_3.jpg)
-
-## [**WhiteCat (1.0) 『DT』**](http://www.mediafire.com/file/nqmdulhi5pln706/-_%2523_WhiteCat_%25281.0%2529_%25E3%2580%258EDT%25E3%2580%258F_%2523-.osk/file)
-![](https://skins.osuck.net/uploads/posts/2019-11/1573897169_4.jpg)
-
-## [**Aristia(Edit)**](https://www.mediafire.com/file/wxh5t1xfa3kpncd/Aristia%28Edit%29.osk/file)
-![](https://skins.osuck.net/uploads/posts/2019-02/1549355517_3.jpg)
-
-## [**- YUGEN -**](https://www.mediafire.com/file/r3oivckreh8nrqn/-_YUGEN_-.osk/file)
-![](https://skins.osuck.net/uploads/posts/2018-09/1538054483_screenshot258.jpg)
-
-## [**idke+1.1**](http://www.mediafire.com/file/iquuacals63m6eq/idke+1.1.osk/file)
-![](https://skins.osuck.net/uploads/posts/2018-09/1537858215_bvputcn.jpg)
-
-## [**-GN 2017-09-16**](http://www.mediafire.com/file/nfm6r0c04f8und5/-GN_2017-09-16.osk/file)
-![](https://skins.osuck.net/uploads/posts/2018-10/1538730109_screenshot492.jpg)
-
-## [**- #-K- Megumi feat.Hoaq --**](https://www.mediafire.com/file/r6ep8yy9ytyk40t/-_%2523-K-_Megumi_feat.Hoaq_--.osk/file#-K-+Megumi+feat.Hoaq+--.osk/file)
-![](https://skins.osuck.net/uploads/posts/2020-08/1596631540_screenshot9261.jpg)
-
-## [**- + Anzurim (One ver)**](https://www.mediafire.com/file/7urrt06pkni71oz/-_+_Anzurim_%28One_ver%29.osk/file)
-![](https://skins.osuck.net/uploads/posts/2020-01/1578050944_screenshot7624.jpg)
-
-## [**mathi ensalada v1.5**](http://www.mediafire.com/file/dasthizozmbr3dg/mathi_ensalada_v1.5_%2528Yellow_cursor%2529.osk/file)
-![](https://skins.osuck.net/uploads/posts/2019-03/1553936590_screenshot3523.jpg)
-
-## [**osu! Default Skin Improved**](https://www.mediafire.com/file/skpip57mu3y1doi/osu%21_Default_Skin_Improved.osk/file)
-![](https://skins.osuck.net/uploads/posts/2020-03/1583321376_screenshot8139.jpg)
-
-## [**404 SkinNotFound v2**](http://www.mediafire.com/file/xntqi7ms52y2e61/404_SkinNotFound_v2.osk/file)
-![](https://skins.osuck.net/uploads/posts/2018-11/1541395297_screenshot993.jpg)
+# [- Seoul v10]([https://twitter.com/SeoulessOsu/status/1474508609102954499](https://drive.google.com/file/d/1MyP_M81O31eInOfeIqJaQjfFRne3-BhL/view?usp=sharing))
+![]([https://i.imgur.com/OS4JrLz.jpg](https://imgur.com/KITjcfN))
