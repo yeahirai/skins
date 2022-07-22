@@ -1,6 +1,6 @@
 # *UPDATED WHEN I REMEMBER*  
 
-Discord: **gowon#0609**
+full skins big folder [here](https://drive.google.com/drive/folders/1nydk6OUpGhjq8Shqf4EzqHqrRAxcYNOM?usp=sharing)
 
 # **DM me if any links are broken**
 
